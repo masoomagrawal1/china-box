@@ -1,0 +1,1 @@
+china box is spicy schezwan noodles with lot of veggies which makes the texture crunchy.
